@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **aniteshjha1456@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lu0P6-gqb1z6keWMIjPUZrphumEmTfuZ/view?usp=sharing](https://drive.google.com/file/d/1lu0P6-gqb1z6keWMIjPUZrphumEmTfuZ/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1QYo2DKCpRyLT-kHCWWWpCJSGzQWH4nGC/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny**
 
